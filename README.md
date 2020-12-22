@@ -1,1 +1,1 @@
-# Submissions for Hamoye
+# Submissions for Hamoye Data Storytelling Internship
